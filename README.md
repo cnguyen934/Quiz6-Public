@@ -9,3 +9,5 @@ Looking for project to join.
 
 I'm interest in network and/or cybersecurity related project. 
 I am taking Red Hat/ Fedora Linux class so I am also interested in Linux system related project. 
+I'd like to either co-lead or just be a team member depending on the team's need.  
+I am learning so if anyone has more experience and skills and I would be happy to cooperate and let the person lead.
